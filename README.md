@@ -36,7 +36,7 @@ Like:
 https://dorceyformayor.com/
 I really like the format and how clean it is. I think the words shouldn’t be covering her photo. I do like the contact the campaign boxes right up front too. 
 
-https://rosenzweig4auditor.com/
+https://rosenzweig4auditor.com/ - Starfield Technologies; Go Daddy Website Builder 8.0.0000
 I like how clean it is but the ordering and layout feel disconnected.
 
 https://www.andrewcuomo.com/
